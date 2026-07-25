@@ -80,4 +80,4 @@ Dr. J P Arul Mozhi Varman
 
 Should you require your own database or develop materials with tailored deformation mechanisms, please reach out; 
 jp.arulmozhivarman@uq.net.au
-materialtechnologists@gmail.com
+jp.arulmozhivarman@appliedmicrostructure.com
